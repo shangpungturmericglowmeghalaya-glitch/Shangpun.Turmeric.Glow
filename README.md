@@ -1,4 +1,4 @@
-# Shangpung Turmeric Glow Website
+# Shangpung Turmeric Glow, Meghalaya
 
 Welcome to your professional website for premium Lakadong turmeric from Meghalaya! This website is designed to be **easy to edit and maintain without any coding knowledge**.
 
